@@ -1,4 +1,4 @@
-## BOM DIA  👋
+## oii 👋
 MEU NOME E RAQUELY SOU DO 1 ANO A E SOU DO JK 🩷
 
 **quelyviviane/quelyviviane** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
